@@ -1,5 +1,5 @@
 # [免费好用的电脑手机梯子合集]稳定流畅的pc电脑和Andriod苹果手机油管推特上网工具
-免费好用的梯子,稳定的vpn,推荐vpn,免费梯子ssr节点v2ray节点,免费的翻墙软件,科学上网免费,免费trojan节点,免费网络加速器,电脑免费梯子,手机免费梯子
+梯子推荐 PC/Mac/iPhone 好用梯子下载   海外加速器梯子 靠谱 iPhone/iPad/安卓/Android/Mac/Linux/PC/路由器都可以用的梯子电脑梯子, PC 好用梯子, 推荐翻墙梯子软件,  靠谱的梯子,clash 梯子,shadowrocket 梯子,小火箭梯子,Google/YouTube/Facebook/Twitter等外网梯子
 
 **今天分享的是pc电脑和Andriod苹果手机都能用的[免费梯子软件合集](http://bbs.ntpcb.com/read-htm-tid-200871.html)，本文推荐的几个梯子都是免费的，并且经过长期的使用后发现体验绝佳，无论你是用pc电脑还是各类手机进行科学上网，都能用到，今天小编给大家做一个[免费梯子大合集](http://react-china.org/t/topic/40257)，将近几年淘金出来的梯子软件都分享给大家。**
 
